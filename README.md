@@ -1,3 +1,3 @@
 # Group-Project
-Every Detail in PPT /n
+Every Detail in PPT 
 Group Projrct Work In progress
